@@ -2,7 +2,7 @@
 
 ## The Discovery
 Late one night, something unusual was found in a place everyone thought they knew well.
-Sarah was wandering through the halls of Howley when she heard a loud noise. 
+Sarah was wandering through the halls of Howley when she heard a loud noise. She looked in each classroom and in the last one, there was a mysterious chest with a dragon on the front.
 
 ## The Witnesses
 Several people noticed strange events, but none reported them immediately.
