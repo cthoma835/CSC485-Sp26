@@ -4,6 +4,7 @@
 Late one night, something unusual was found in a place everyone thought they knew well.
 Sarah was wandering through the halls of Howley when she heard a loud noise. She looked in each classroom and in the last one, there was a mysterious chest with a dragon on the front.
 She creeped closer to the chest when someone tapped her left shoulder. "What are you doing there?" said the elderly woman.
+Sarah recognized the elderly woman, but could not quite figure out who it was. Sarah said "I have tutored in this building for three years, but I have never seen this chest before."
 
 ## The Witnesses
 Several people noticed strange events, but none reported them immediately.
